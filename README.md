@@ -1,0 +1,1 @@
+# Estadisticas-de-Sismicidad-mediante-plano-coordenado-en-el-Estado-de-Colima
